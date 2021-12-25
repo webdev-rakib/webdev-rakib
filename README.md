@@ -1,4 +1,4 @@
-![Web Design & Developer](https://ibb.co/0s0bGPH)
+![Web Design & Developer](https://webexpert-rakib.github.io/Banner/Banner%20with%20icon%20copy.png)
 
 ### Hi there 👋, My name is Rakibul Islam
 #### Web Design & Developer
